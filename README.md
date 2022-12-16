@@ -2,4 +2,4 @@
 
 sunt frumos
 este weekend
-este craciun
+este craciun azi
